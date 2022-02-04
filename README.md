@@ -7,5 +7,3 @@
 - Outside of tech, I enjoy debating and participating in theatre
 
 he/him.
-
-\
